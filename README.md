@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me ...
 - 😄 Pronouns: Her
-- ⚡ Fun fact: There is no substitute for hard work."The future belongs to those who prepare for it today"
+- ⚡ Fun fact: There is no substitute for hard work."The future belongs to those who prepare for it today."- Malcolm X.
 
 <!---
 Elliciag/Elliciag is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
